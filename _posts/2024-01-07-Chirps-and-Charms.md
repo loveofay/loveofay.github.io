@@ -7,7 +7,7 @@ author: Ayush Rawat
 
 Good Morning,
 
-It's been a really while since I wrote on my terrace, under the foggy sky, with the mild sub-beams kissing my cold hands and the musing chirping of these little birds. Primarily because I was out of town for the majority of my time. And secondly, because it's winter and coming here is a task in itself. The sun's rays are getting stronger with each minute, and the heat of these rays is perfectly complementing the coldness of my hands. The sound of just birds moving their feathers and no humans around. I love it.
+It's been a really while since I wrote on my terrace, under the foggy sky, with the mild sun-beams kissing my cold hands and the musing chirping of these little birds. Primarily because I was out of town for the majority of my time. And secondly, because it's winter and coming here is a task in itself. The sun's rays are getting stronger with each minute, and the heat of these rays is perfectly complementing the coldness of my hands. The sound of just birds moving their feathers and no humans around. I love it.
  
 Reminds me of the lockdown period when this was part of my routine. At that time, the number of birds around was several times higher than today. I visually remember birds chirping around my window, which used to be my alarm. And they never forget to wake me up. They sang beautiful songs for me while chilling with their friends. These little birds are always ecstatic, it seems. Back then, I was observing their chirping, and it felt to me that the vibrations of chirping were at perfect numbers: loud enough to make you listen and calm enough to make your day. I am really enjoying this.
  
